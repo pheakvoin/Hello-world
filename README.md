@@ -1,2 +1,6 @@
 # Hello-world
-Just another repository
+
+Hi humans
+
+pheakvoin here,i like candy
+I've has eat on the afternoon
